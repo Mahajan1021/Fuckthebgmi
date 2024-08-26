@@ -1,0 +1,2 @@
+# Fuckthebgmi
+FUCK THE BGMI
